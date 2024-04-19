@@ -1,1 +1,1 @@
-# -Minji827.github.io
+# Minji827.github.io
